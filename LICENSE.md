@@ -1,4 +1,4 @@
-# 
+# vip degen coin sniper bot | trailing-stop + sandwich-attack-execution is the best degen coin sniper bot, featuring trailing-stop and sandwich-attack-execution. Fast, smart, and
 
 
 
